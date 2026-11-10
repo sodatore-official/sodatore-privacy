@@ -1,0 +1,2 @@
+# sodatore-privacy
+そだトレ プライバシーポリシー
